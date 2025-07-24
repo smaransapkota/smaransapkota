@@ -50,6 +50,8 @@ I'm open to collaboration, learning, and tech discussions!
 
 - 🔗 [LinkedIn](https://www.linkedin.com/in/smaran-sapkota-0117b4190/)
 - 📧 ishorsapkota0@gmail.com
+- 🌍 **Website:** [smaransapkota.com.np](https://smaransapkota.com.np/)  
+
 
 ---
 
