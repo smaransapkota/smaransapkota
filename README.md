@@ -48,8 +48,8 @@ Some highlights include:
 
 I'm open to collaboration, learning, and tech discussions!
 
-- 🔗 [LinkedIn]([https://www.linkedin.com/in/smaran-sapkota-0117b4190/])
-- 📧 [Email]([ishorsapkota0@gmail.com])
+- 🔗 [LinkedIn](https://www.linkedin.com/in/smaran-sapkota-0117b4190/)
+- 📧 [Email](ishorsapkota0@gmail.com)
 
 ---
 
